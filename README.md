@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **joaopedrolima.s@hotmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Drgn3xye6bqGz1YU7w1Wsjri9ERBNIun/view?usp=sharing](https://drive.google.com/file/d/1Drgn3xye6bqGz1YU7w1Wsjri9ERBNIun/view?usp=sharing)
+- 📄 Know about my experiences [https://encurtador.com.br/frsM0](https://encurtador.com.br/frsM0)
 
 - ⚡ Fun fact **I like anime, games and manga**
 
