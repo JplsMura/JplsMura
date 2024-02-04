@@ -11,7 +11,7 @@
 
 - 📫 Como entrar em contato comigo **joaopedrolima.s@hotmail.com**
 
-- 📄 Saiba mais sobre meus experiências [https://drive.google.com/file/d/1Drgn3xye6bqGz1YU7w1Wsjri9ERBNIun/view?usp=sharing](https://drive.google.com/file/d/1Drgn3xye6bqGz1YU7w1Wsjri9ERBNIun/view?usp=sharing)
+- 📄 Saiba mais sobre meus experiências [https://encurtador.com.br/nASY2](https://encurtador.com.br/nASY2)
 
 - ⚡ Diversão fato **Gosto de animes, jogos e mangás**
 
