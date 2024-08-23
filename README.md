@@ -3,8 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jplsmura&label=Profile%20views&color=0e75b6&style=flat" alt="jplsmura" /> </p>
 
-- 🔭 I’m currently working on [FuneralPass](https://homologfuneral.ossbrasil.com/login/76f2067a6fedbfbe0b094c8707edfa8f)
-
 - 🌱 I’m currently learning **DevOps, NodeJs and React/React Native**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Jplsmura](https://github.com/Jplsmura)
