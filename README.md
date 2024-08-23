@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=jplsmura&label=Profile%20views&color=0e75b6&style=flat" alt="jplsmura" /> </p>
 
-- 🌱 I’m currently learning **DevOps, NodeJs and React/React Native**
+- 🌱 I’m currently learning **DevOps, Java and Spring Boot**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Jplsmura](https://github.com/Jplsmura)
 
