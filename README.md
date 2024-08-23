@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **joaopedrolima.s@hotmail.com**
 
-- 📄 Know about my experiences [https://encurtador.com.br/frsM0](https://encurtador.com.br/frsM0)
+- 📄 Know about my experiences [https://encurtador.com.br/frsM0]([https://encurtador.com.br/frsM0](https://www.linkedin.com/in/joao-pedro-lima-santos/))
 
 - ⚡ Fun fact **I like anime, games and manga**
 
